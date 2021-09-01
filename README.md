@@ -5,12 +5,6 @@ Este parrafo solo lo ha hecho francisco.
 arigatou
 
 
-Padre nuestro que estás en el cielo, 
-santificado sea tu Nombre;
-venga a nosotros tu Reino;
-hágase tu voluntad 
-en la tierra como en el cielo.
-Danos hoy 
 nuestro pan de cada día;
 perdona nuestras ofensas,
 como también nosotros perdonamos 
